@@ -11,4 +11,4 @@ Some skills ive learned within the last couple years is to always help out your 
 ## Spotify Playlist
 [My Spotify Playlist](https://open.spotify.com/playlist/2nOBK6BOtDMpI4hsF6SvhI?si=ynFEdj5jQaet2fIQQ3EHsA)
 ## Image Collage
-![This is a collage of my favorite things](Untitleddesign.png)
+ ![This is my collage! ](Untitled%20design.png)
